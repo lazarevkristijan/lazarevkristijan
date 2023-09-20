@@ -1,5 +1,3 @@
-KRISTIJAN, a 20 year old, overfilled with enthusiasm & craving for success. <br />
-I accept every challenge as an opportunity for personal, professional growth & development. <br/>
-Love taking risks, improving my mind, my body & health, making life purposely uncomfortable to get the best out of it!
-
-If you have similar qualities I would love to get in contact, so go ahead, write me a message :)
+KRISTIJAN, a 20 year old, overfilled with enthusiasm & craving for success.
+I‘ve had a deep attraction towards the world of computers since the age of 7,
+today it‘s the only thing I‘ve devoted 20,000+ hours of my life to, unless sleeping counts.
