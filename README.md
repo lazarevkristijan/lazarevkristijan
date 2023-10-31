@@ -1,3 +1,1 @@
-KRISTIJAN, a 20 year old, overfilled with enthusiasm & craving for success.
-I‘ve had a deep attraction towards the world of computers since the age of 7,
-today it‘s the only thing I‘ve devoted 20,000+ hours of my life to, unless sleeping counts.
+Kristijan, a 20 year old it specialist. my knowledge persists of an advanced understanding of the pc ecosystem along with graphic design and web engineering software. my mother language is javascript, but i also speak 5 actual languages too. my ultimate goal is to create / be a part of an innovation that will change the world for the better.
